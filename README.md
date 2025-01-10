@@ -1,4 +1,6 @@
-## Hi there 👋
+## гойда
+# это старый акк
+переходите на github.com/pmerrs
 
 <!--
 **pmerrs7/pmerrs7** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
