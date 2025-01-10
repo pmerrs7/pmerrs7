@@ -1,6 +1,24 @@
 ## гойда
-# это старый акк
+# это переходник
 переходите на github.com/pmerrs
+https://github.com/pmerrshttps://github.com/pmerrshttps://github.com/pmerrs
+https://github.com/pmerrs
+https://github.com/pmerrs
+https://github.com/pmerrs
+https://github.com/pmerrs
+https://github.com/pmerrs
+https://github.com/pmerrs
+https://github.com/pmerrs
+https://github.com/pmerrs
+
+https://github.com/pmerrs
+
+
+https://github.com/pmerrs
+https://github.com/pmerrs
+https://github.com/pmerrs
+https://github.com/pmerrs
+
 
 <!--
 **pmerrs7/pmerrs7** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
